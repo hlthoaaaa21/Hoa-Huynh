@@ -15,3 +15,4 @@ I'm currently studying both Graphic Design and UX/UI at San Jose City College, f
 
 ### How to reach me
 * Email: hlthoaaa21@gmail.com
+* LinkedIn: https://www.linkedin.com/in/hoa-huynh-55a9b3374/?isSelfProfile=true
